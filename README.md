@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **hegdesamarth@yahoo.com**
 
-- 📄 Know about my experiences [samarthkombemane,com](samarthkombemane,com)
+- 📄 Know about my experiences [samarthkombemane.com](samarthkombemane.com)
 
 - ⚡ Fun fact **Haha**
 
